@@ -1,4 +1,4 @@
-## Edit a file
+## RipOffs
 Have you ever found a deal online that was just a complete rip-off that no one should buy or have you ever found a deal so good, other people should take advantage of it? Well do we have the app for you. Welcome to RipOffs, the first, best, and only social media based coupon sharing app.
 
 With our unique app, you can upload a great deal or a rip-off to RipOffs community of users. Once you find a great deal or rip-off online, our app allows you to post your finding and
