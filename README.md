@@ -15,7 +15,7 @@ RipOffs will make your life easier because RipOffs
 - purchase the great deal through the built in browser
 
 ![alt text](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/79/d6/e3/79d6e36d-0ff9-3047-7b5b-ede21e81dde2/pr_source.png/300x300bb.jpg?1548990006405)
-![alt text](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/79/d6/e3/79d6e36d-0ff9-3047-7b5b-ede21e81dde2/pr_source.png/300x300bb.jpg?1548990006405)
+![alt text](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/0d/5b/24/0d5b24b8-85e6-f610-5b26-d2e77345d1a1/pr_source.png/300x300bb.jpg?1548990006408)
 ![alt text](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/59/d4/c9/59d4c944-447e-4756-8d9f-2c08a3fa5a6f/pr_source.png/300x300bb.jpg?1548990006411)
 ![alt text](https://is1-ssl.mzstatic.com/image/thumb/Purple118/v4/17/21/2c/17212c16-76f8-13d3-6eec-5e5854e7c033/pr_source.png/300x300bb.jpg?1548990006412)
 ---
